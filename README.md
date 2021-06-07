@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Xinyu Zhang
+- 🌱 I’m currently studing IT
+- 💞️ I am looking for internship opportunities
+- 📫 zhangfiona47@gmail.com
